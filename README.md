@@ -1,8 +1,9 @@
-## Find roommate at 3B2B_WillowSpring Apartment[still valid]
+## Find a roommate at 3B2B Apartment[still valid]
 
 Hi! We are two incoming software engineers at [Appfolio](https://www.appfolio.com/), and we are looking for interesting people like you to be our roommate! We will be living in a [3 Bedroom 2 Bathroom apartment](#details) at [Willow Spring](https://www.willowspringsapartments.com/apartments/ca/goleta/neighborhood).
 
 ⚡ Long-term rental are preferred.
+
 ⚡ If you are interested, please contact me via [email](#contact-info) or [text msg](#contact-info).
 ![we want you](http://www.allamericancoop.com/UserFiles/Images/Employment/wewantyou.jpg)
 
@@ -19,8 +20,8 @@ Hi! We are two incoming software engineers at [Appfolio](https://www.appfolio.co
 **Location**: Apt 085-201, 60 Willow Springs Ln, Goleta, CA 93117
 
 
-
 <a name="myfootnote1">[1]</a>: Depends on which bedroom you choose to live in.
+
 <a name="myfootnote1">[2]</a>: Depends on which bedroom you choose to live in  **AND** how long you are staying. 12 months or longer are preferred.
 
 ## Details
