@@ -16,7 +16,9 @@ Hi! We are two incoming software engineers at [Appfolio](https://www.appfolio.co
 - Two nice, quiet, respectful **Software Engineers** as your roommates 😃
 
 **Cost**: $1100/mo <sup>[2](#myfootnote1)</sup>
+
 **Start Date**: May.25.2019
+
 **Location**: Apt 085-201, 60 Willow Springs Ln, Goleta, CA 93117
 
 
